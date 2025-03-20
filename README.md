@@ -1,7 +1,7 @@
 ## Hi, I'm Safin Karunia 👋
 
 🧠 research and someone who always learns about new knowledge<br/>
-🔍 History Siciens Studied<br/> 
+🔍 History Science Studied<br/> 
 📃 I write for some platform<br/>
 🔗 If you want to know me to check on [LinkedIn](https://www.linkedin.com/in/safin-karunia-rojuli-63b912201/)<br/>
 
