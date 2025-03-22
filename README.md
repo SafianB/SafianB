@@ -4,6 +4,7 @@
 🔍 History Science Studied<br/> 
 📃 I write for some platform<br/>
 🔗 If you want to know me to check on [LinkedIn](https://www.linkedin.com/in/safin-karunia-rojuli-63b912201/)<br/>
+💰 Donate me for my better future [Tako](https://tako.id/Isfantasea)<br/>
 
 
 ## 🌐 Socials:
